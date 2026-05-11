@@ -1,4 +1,4 @@
-
+Obsidian for macOS top Plugin - AI assistant and calendar integration offers the most advanced Obsidian for macOS plugin, with AI assistant and calendar integration. Ideal for
 
 
 
